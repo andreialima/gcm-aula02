@@ -2,6 +2,6 @@ Atores/atrizes preferidos:
 
 Tom Cruise
 
-Julia Roberts
+Sandra Bullock
 
 Brad Pitt
